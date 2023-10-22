@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @quina23
+- 👀 I’m interested in making websites.
+- 🌱 I’m currently a BSIT student.
+- 💞️ I’m looking to collaborate on making websites, to improve my knowledge.
+- 📫 You can reach me at r2022021051@feuroosevelt.edu.ph
